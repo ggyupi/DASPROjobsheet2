@@ -1,0 +1,3 @@
+# ALLIED
+
+join ex immortal
